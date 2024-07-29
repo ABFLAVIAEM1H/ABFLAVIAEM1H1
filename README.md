@@ -7,8 +7,7 @@ Meu nome é Hanna
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
-
+00001165854405SP@al.educacao.sp.gov.br
 @marcelopaludetto
 
-![descrição do GIF](link GIF do Tenor)
+![Hello kitty dance](https://media1.tenor.com/m/HJ8Nxo6FkI0AAAAC/broncos-hello.gif)
